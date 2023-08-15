@@ -1,1 +1,1 @@
-#I'm Irina Zhuravleva👋🏻 Frontend-developer
+I'm Irina Zhuravleva👋🏻 Frontend-developer
